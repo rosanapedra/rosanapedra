@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de rosanapedra😁
+## Bem-vindo(a) ao perfil de Rosana Pedra😁
 
  <div>
    <a href="https://github.com/rosanapedra">
